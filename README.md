@@ -1,0 +1,2 @@
+# Refurbished-Products
+Refurbishment is that the process by which the products make their way back to the market. it’s the repair a product needs before being eligible to be sold within the market. These products undergo a series of tests to spot the defects in them. These defects are fixed. Before selling it to a customer, the merchandise undergoes functionality tests to make sure everything is taken care of and therefore the product is prepared for its comeback.
